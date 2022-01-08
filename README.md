@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kimlivhello
+- 👀 I’m interested in building websites and psychology
+- 🌱 I’m currently learning GitHub! 
+- 💞️ I’m looking to collaborate on anything that can teach me new skills
+- 📫 How to reach me kim.liv.hello [@] gmail . com
